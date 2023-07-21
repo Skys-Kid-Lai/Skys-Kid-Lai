@@ -1,4 +1,4 @@
 # 初見的安安！！
 這裡是哪裡？？迷路了啦
 
-WordPress：[https://kvjk2125.wordpress.com/1](https://kvjk2125.wordpress.com/)
+WordPress：[大大的個人網頁（誤](https://kvjk2125.wordpress.com/)
